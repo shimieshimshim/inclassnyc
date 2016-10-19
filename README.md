@@ -1,3 +1,3 @@
 # inclassnyc
 
-Worked with Prshanna Tiwareep
+Worked with Prashanna Tiwaree
